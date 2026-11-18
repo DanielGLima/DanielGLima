@@ -27,4 +27,4 @@ CRUD completo y contenerizado: se levanta con un solo comando.
 
 Tomo proyectos freelance: **sistemas a la medida**, **páginas para negocios** y **mejoras a sistemas que ya existen**.
 
-[Correo](mailto:tucorreo@ejemplo.com) · [LinkedIn](https://linkedin.com/in/TU-USUARIO) · [WhatsApp](https://wa.me/502XXXXXXXX)
+[Correo](mailto:danielglima502@gmail.com) · [LinkedIn](https://www.linkedin.com/in/danielgalima/) · [WhatsApp](https://wa.me/50238062121)
